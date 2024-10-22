@@ -1,0 +1,3 @@
+es muy bueno que prestemos atención para poder aprender...
+La cadena del aprendizaje es muy
+Atiendo --> Entiendo --> Aplico
